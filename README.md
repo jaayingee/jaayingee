@@ -1,11 +1,6 @@
+<p align="center">
+<img src="https://img.wattpad.com/04e68fe9f54393394b004b40a0d36395473d74a1/68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f4147685f454e6c41397a495865773d3d2d3731383735383631372e313539346537333466643832313361323337393438353234363232362e676966" width="380" height="215"> <img src="https://media1.tenor.com/m/lMGO1LjmiEsAAAAd/you-wish-harry-potter.gif" width="425" height="213">
 </p>
 <p align="center">
-²²¹ᴮ ᴮᵃᵏᵉʳ ˢᵗʳᵉᵉᵗ
-</p>
-
-<p align="center">
-  <img width="350" height="250" src="https://64.media.tumblr.com/00c201be99386e444edaf27f354bc3e8/74706147964669af-c8/s540x810/f8f7b2a5141fc23071ee8497221a226f3ac0013c.gif"> <img width="412" height="850" src="https://64.media.tumblr.com/8ec052924942d1df506378fb76ae74ab/1709646547510838-73/s500x750/54cac5b28e195ffa2b403e2cb258e8277d818fa2.gif">
-</p>
-<p align="center">
->ᴗ<
+❾¾
 </p>
